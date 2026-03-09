@@ -1,2 +1,0 @@
-# Egertercs
-Egertercs Final Countdown
